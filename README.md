@@ -12,3 +12,7 @@ Are going to leave the GAME...
 
 
 This is some more text to see If its IN THIS FILE?? 
+
+
+Cool I'd just like to see if I can write and think at the same time ? I this strange??? I feel that I am 
+Haveing a hard time with this? 
